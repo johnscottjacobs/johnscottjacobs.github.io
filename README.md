@@ -1,1 +1,0 @@
-# johnscottjacobs.github.io
